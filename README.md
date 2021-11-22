@@ -16,7 +16,7 @@
 
 [Google](www.google.com)
 
-![HarryStyles](https://i.pinimg.com/originals/01/3a/d3/013ad31023d18af6d690ecd176cc9833.jpg)
+![HarryStyles](https://www.wallpaperflare.com/static/965/615/593/one-direction-wallpaper-preview.jpg)
 
 * Cricketers
   * Rohit Sharma
