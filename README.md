@@ -16,7 +16,7 @@
 
 [Google](www.google.com)
 
-![HarryStyles](https://www.wallpaperflare.com/static/965/615/593/one-direction-wallpaper-preview.jpg)
+![1D](https://wallpaper-mania.com/wp-content/uploads/2018/09/High_resolution_wallpaper_background_ID_77701281672.jpg)
 
 * Cricketers
   * Rohit Sharma
